@@ -1,0 +1,18 @@
+# Leaf
+
+I once saw a leaf
+a beautiful, radiant leaf.
+I tended to it, daily waterings and praises of love.
+Hell, I nigh loomed over it, I cast out the sun.
+One day, I decided that it was done.
+I plucked it, I claimed it as mine. 
+Oh, and what had i done...
+On the way home, under baking sun,
+I took it out for a spin, and we spun and had fun.
+I am telling you, we had so much fun.
+At least, I had fun,
+She got sunned!
+And gradually, with minutes, not months,
+aided by wind and the force of a hand,
+I uncurled a fist, to palms full of sand.
+And never did I see that leaf again. 
